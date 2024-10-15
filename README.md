@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on idk
 - 📫 How to reach me I dunno why you would want to but yea
 - 😄 Pronouns: he/him
-- ⚡ Fun fact: I'm gay
+- ⚡ Fun fact: the roof says that your dumb
 
 <!---
 Aussie-Hamster/Aussie-Hamster is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
